@@ -11,5 +11,5 @@ Objetivos
 Me motiva la posibilidad de contribuir a proyectos innovadores y formar parte de equipos que estén a la vanguardia del avance tecnológico. Mi objetivo es seguir aprendiendo y mejorando, mientras aplico mis conocimientos para desarrollar soluciones que tengan un impacto positivo y duradero.
 
 Conecta conmigo
-- [LinkedIn](https://www.linkedin.com/in/nahuel-arga%C3%B1araz/))
+- [LinkedIn](https://www.linkedin.com/in/nahuel-arga%C3%B1araz/)
 - [Correo Electrónico](mailto:claudioarganaraz86@gmail.com)
